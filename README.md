@@ -11,3 +11,5 @@ I love painting 🧑‍🎨
 Primer modificacion 
 
 Finalizando con github
+
+Segundo semestre :D 
